@@ -3,9 +3,9 @@ layout: default
 ---
 
 # Victoria Woode
-(561) 954-2302
-victoria.mi7000@gmail.com
-Wilton Manors, FL, 33334
+(561) 954-2302  
+victoria.mi7000@gmail.com  
+Wilton Manors, FL, 33334  
 
 ## Bio
 >I'm attending Broward college for an associate of arts to transfer into a bachelor's program at FAU in physics. Learning math and programming on my own on the side and looking for a server job. I'm currently over 100 days sober and live in a state certified recovery residence. I enjoy working as a server because it pays the bills and I love learning more about different cuisine and keeping on my toes in challenging work.
