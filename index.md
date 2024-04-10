@@ -22,6 +22,6 @@ Wilton Manors, FL, 33334
 >Started as a service assistant and worked my way up to server quickly, handled transactions, running food and drinks, wine bottle service, and selling wine club memberships.
 
 ### Server
-####[Cracker Barrel Old Country Store](https://www.crackerbarrel.com/) - West Palm Beach, FL
-#####May 2021 to November 2021
+#### [Cracker Barrel Old Country Store](https://www.crackerbarrel.com/) - West Palm Beach, FL
+##### May 2021 to November 2021
 >First time on the floor as server, learned the ropes of highly emphisized teamwork and organizational skills.
