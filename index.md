@@ -18,10 +18,8 @@ Wilton Manors, FL, 33334
 
 ### Server
 #### [Cooper's Hawk Winery & Restaurants](https://chwinery.com/) - Palm Beach Gardens, FL
-##### May 2022 to November 2022
 >Started as a service assistant and worked my way up to server quickly, handled transactions, running food and drinks, wine bottle service, and selling wine club memberships.
 
 ### Server
 #### [Cracker Barrel Old Country Store](https://www.crackerbarrel.com/) - West Palm Beach, FL
-##### May 2021 to November 2021
 >First time on the floor as server, learned the ropes of highly emphisized teamwork and organizational skills.
